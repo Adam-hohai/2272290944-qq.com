@@ -1,2 +1,2 @@
-# 2272290944-qq.com
+# DailyEnglish
 每天整理一些英语单词
